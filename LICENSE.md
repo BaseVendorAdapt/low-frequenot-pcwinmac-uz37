@@ -1,4 +1,4 @@
-# 
+# Nouveau low-frequency trading bot extensions pour Mac OS | Turbo low-frequency trading bot extensions pour PC Windows. Avec gestion de portefeuille et gestion des risques — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
